@@ -1,0 +1,1 @@
+https://datainsights-far.com/
